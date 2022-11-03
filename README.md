@@ -1,1 +1,1 @@
-3rd Year RIT Software Enginnering Student
+3rd Year RIT Software Engineering Student
